@@ -1,1 +1,0 @@
-# myJuly2023Weekday
